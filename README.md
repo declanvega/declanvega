@@ -19,6 +19,5 @@ or you can find my professional work at:
 
 * [moonblademanor.com](http://moonblademanor.com)
 * [moonblade manor on youtube](https://youtube.com/@moonblademanor)
-* or moonblade manor on [tiktok](https://tiktok.com/moonblademanor), [twitter](https://twitter.com/moonblademanor), or [instagram](https://instagram.com/moonblademanor)
 
 ###### thank you for your time
