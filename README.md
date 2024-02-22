@@ -8,17 +8,17 @@ i like to make games, short films, dumb programming toys, write stories, and com
 
 you can find me elsewhere online at:
 
-* [my 'professional' site](declanvega.com)
-* [my digital garden](adaptoraptor.com)
-* [declan@moonblade.social](moonblade.social/@declan)
-* [twitter](twitter.com/declanvega)
-* [instagram](instagram.com/declan.vega)
-* [tiktok](tiktok.com/declanvega)
+* [my 'professional' site](http://declanvega.com)
+* [my digital garden](http://adaptoraptor.com)
+* [declan@moonblade.social](https://moonblade.social/@declan)
+* [twitter](https://twitter.com/declanvega)
+* [instagram](https://instagram.com/declan.vega)
+* [tiktok](https://tiktok.com/declanvega)
 
 or you can find my professional work at:
 
-* [moonblademanor.com](moonblademanor.com)
-* [moonblade manor on youtube](youtube.com/@moonblademanor)
-* or moonblade manor on [tiktok](tiktok.com/moonblademanor), [twitter](twitter.com/moonblademanor), or [instagram](instagram.com/moonblademanor)
+* [moonblademanor.com](http://moonblademanor.com)
+* [moonblade manor on youtube](https://youtube.com/@moonblademanor)
+* or moonblade manor on [tiktok](https://tiktok.com/moonblademanor), [twitter](https://twitter.com/moonblademanor), or [instagram](https://instagram.com/moonblademanor)
 
 ###### thank you for your time
