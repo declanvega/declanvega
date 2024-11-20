@@ -1,6 +1,6 @@
 # hi im declan
 
-i run a little boutique r&d art studio called [moonblade manor](http://moonblademanor.com).
+i run a media research studio called [moonblade manor](http://moonblademanor.com).
 
 
 i like to make games, short films, dumb programming toys, write stories, and combine them all into weird amalgamations of none of and all of the above. i'll update this with any notable projects as they occur.
